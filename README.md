@@ -1,4 +1,4 @@
 - 👋 Hello, I’m @CaspieGameTime
 - 👀 I’m interested in anime, foxes, programming
-- 🌱 I’m currently learning android development, Japanese
-- 📫 How to reach me: not, sorry
+- 🌱 I’m currently learning nothing... c:
+- 📫 How to reach me: on Discord, tag: CaspieGameTime#4220
