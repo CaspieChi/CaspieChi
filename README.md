@@ -1,4 +1,1 @@
-- 👋 Hello, I’m @CaspieGameTime
-- 👀 I’m interested in anime, foxes, programming
-- 🌱 I’m currently learning nothing... c:
-- 📫 How to reach me: on Discord, tag: CaspieGameTime#4220
+I love foxes, pretty much it
